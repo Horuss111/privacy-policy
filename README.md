@@ -118,7 +118,7 @@ We may update this Privacy Policy from time to time. The "Last Updated" date at 
 
 If you have any questions about this Privacy Policy or your data, contact us:
 
-**Email:** khooliganz286@gmail.com
+**Email:** karimdiab7800@gmail.com
 **Developer:** TK Nexus
 **Country:** Egypt
 
