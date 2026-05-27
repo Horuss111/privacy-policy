@@ -1,4 +1,4 @@
-<img width="3286" height="1080" alt="image" src="https://github.com/user-attachments/assets/edb01473-a034-4d5a-8d15-d675f46697fa" /># Privacy Policy for The System
+# Privacy Policy for The System
 
 **Last Updated:** May 13, 2026
 
